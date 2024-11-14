@@ -29,8 +29,40 @@ Uma mulher se encontra em uma luta por sua vida quando um livro antigo dá à lu
 
 ![](https://media1.tenor.com/m/w4-oqFa8cCYAAAAd/evil-dead-evil-dead-rise.gif)
 
-**Minha mãe é uma peça**
+**como eu era antes de você**
 
-Dona Hermínia é uma senhora de meia-idade, divorciada do marido, que a trocou por uma mulher mais jovem. Hiperativa, ela não larga o pé de seus filhos Marcelina e Juliano. Um dia, após descobrir que eles a consideram chata, ela resolve sair de casa sem avisar ninguém, deixando todos preocupados. Dona Hermínia decide visitar a querida tia Zélia para desabafar suas tristezas atuais e recordar os bons tempos do passado.
+De origem modesta e sem grandes aspirações, a peculiar Louisa Clark é contratada para ser cuidadora de Will, um jovem tetraplégico depressivo e cínico.
 
-![]()
+![](https://media1.tenor.com/m/7uCfxnl2tO4AAAAd/me-before-you-emilia-clarke.gif)
+
+**As branquelas**
+
+Dois irmãos agentes do FBI, Marcus e Kevin Copeland, acidentalmente evitam que bandidos sejam presos em uma apreensão de drogas. Como castigo, eles são forçados a escoltar um par de socialites nos Hamptons. Quando as meninas descobrem o plano da agência, elas se recusam a ir. Sem opções, Marcus e Kevin, dois homens negros, decidem fingir que são as irmãs e se transformam em um par de loiras.
+
+![](https://media1.tenor.com/m/dsazHhRaj4kAAAAd/white-chicks.gif)
+
+**Megalodon**
+
+Na fossa mais profunda do oceano Pacífico, a tripulação de um submarino fica presa dentro do local depois de ser atacada por uma criatura pré-histórica que acreditavam estar extinta: um tubarão de mais de 20 metros de comprimento, o Megalodon. Para salvá-los, um oceanógrafo chinês contrata Jonas Taylor, um mergulhador especializado em resgates em água profundas que já encontrou a criatura anteriormente.
+
+![](https://media1.tenor.com/m/wqdXRtOI1z0AAAAd/my-god-omg.gif)
+
+**Máscara**
+
+A vida do tímido e socialmente desajeitado bancário Stanley Ipkiss muda completamente quando ele encontra no mar uma máscara que possui o espírito do deus escandinavo Loki. Sempre que usa a máscara, Stanley ganha superpoderes e se transforma em um cara cheio de charme e confiança, chamando a atenção da linda cantora Tina. No entanto, ele acaba atraindo também o perigoso namorado dela, o gângster Dorian, que tenta se apoderar da máscara para usar seus poderes para o mal
+
+![](https://media.tenor.com/3BWsRiBcqQ4AAAAi/i%27m-rich-the-mask.gif)
+
+**Jumanji**
+
+Alan Parrish desapareceu quando era menino e ninguém acredita na história de seu amigo de que ele foi sugado por um jogo de tabuleiro. Vinte e seis anos depois, duas crianças acham o jogo no sótão e, quando começam a jogar, Alan é libertado. Mas a disputa ainda não acabou e Alan precisa terminar antes de ser realmente solto.
+
+![](https://media1.tenor.com/m/Dac2z9oZKGcAAAAd/screaming-the-rock.gif)
+
+
+
+
+
+
+
+
